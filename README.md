@@ -1,0 +1,2 @@
+# gulajawaslot
+100
